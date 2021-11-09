@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @codeGlorious
+- 👀 I’m interested in video games and websites
+- 🌱 I’m currently learning everything relating to coding cause i know absolutely nothing
